@@ -1,4 +1,4 @@
-### hi, i'm lydia ♡
+### nohello.org
 
 ♡ barcelona · boston · berlin
 ```
