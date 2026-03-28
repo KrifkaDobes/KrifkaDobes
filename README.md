@@ -1,7 +1,3 @@
-### nohello.org
-
-♡ barcelona · berlin
-
-**lyd** (*n.*) /luːˀd/ danish *sound*
+send me an email! ( i love emails )
 
 synth~cerely ♡ Lyd
